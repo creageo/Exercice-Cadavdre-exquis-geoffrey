@@ -6,6 +6,6 @@
 # C'est quand un moustique se pose sur tes testicules que tu apprends a etre doux avec toi meme
 - Celui qui mange une noix de coco fait confiance a son anus
 
-kfjdsfj
-fksjfls
-kjdslfjsld
+J'étais là, je la regardais, mais ne comprenais pas ce qu'elle me disait
+Elle semblait parler en énigmes, c'était surement une sorte de code.
+Mais quand même, une salade ça s'exprime plus clairement que ça. Non?
