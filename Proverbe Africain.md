@@ -9,3 +9,6 @@
 J'étais là, je la regardais, mais ne comprenais pas ce qu'elle me disait
 Elle semblait parler en énigmes, c'était surement une sorte de code.
 Mais quand même, une salade ça s'exprime plus clairement que ça. Non?
+
+### Mais bien sûr  
+![crocodile](http://www.telegraph.co.uk/content/dam/news/2016/11/04/frogodile-large_trans_NvBQzQNjv4Bq3GvTvez265GZEKMUKXLsL9mqtWNtq60xGF5U3P0FEKA.jpg)
